@@ -1,2 +1,3 @@
-THIS IS MY DIGITAL PORTFOLIO
-![Uploading Recording2025-11-10223337-ezgif.com-video-to-gif-converter.gif…]()
+
+
+![PORTFOLIO](https://github.com/user-attachments/assets/a7583b41-788e-4597-b0ea-020857a9d887)
